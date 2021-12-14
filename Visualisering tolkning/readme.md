@@ -1,0 +1,1 @@
+här samlar vi exempel på visualisering och tolkning
